@@ -1,2 +1,2 @@
 # idea
-help pls
+w
